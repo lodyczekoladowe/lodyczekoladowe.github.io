@@ -1,3 +1,2 @@
 # lodyczekoladowe.github.io
-cześć
-elo
+Cudownych rodziców mam
